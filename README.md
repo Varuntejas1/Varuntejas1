@@ -1,4 +1,4 @@
-# Hey there! 👋 I'm Akhil
+# Hey there! 👋 I'm Varunteja
 
 🎓 Mechanical Engineering Student @ JNTUH College of Engineering Hyderabad  
 🛠️ Learning CAD Design | Python | Cybersecurity Basics  
